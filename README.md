@@ -29,7 +29,7 @@ Saya adalah seorang **he/him**—seorang pria yang bangga dengan keahlian dan pa
 
 ## Proyek Unggulan
 
-- **[Nama Proyek 1]**  
+- **[Pengembangan Website]**  
   Sedang mengembangkan website
 
 ## Hubungi Saya
